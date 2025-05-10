@@ -1,7 +1,7 @@
 # Shockbyte Promo Codes | 70% off 2025
 Shockbyte Promo Code 2025
 # **Shockbyte Promo Code 2025 - Best Discounts for Minecraft & Game Servers**  
-[![My Image](https://github.com/user-attachments/assets/0d0c6640-cb20-485b-9d91-9edb4305835f)](https://shockbyte.com/billing/aff.php?aff=9619)
+
 
 
 
